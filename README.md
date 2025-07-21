@@ -70,7 +70,7 @@
 
 - 📧 Email: [Asale788@gmail.com](mailto:Asale788@gmail.com)
 - 📞 Phone: [+20 100 765 8106](tel:+201007658106)
-- 💼 LinkedIn: [linkedin.com/in/ahmedsalehrefinery](https://linkedin.com/in/ahmedsalehrefinery)
+- 💼 LinkedIn:https://www.linkedin.com/in/ahmedsaleh88/
 - 🌍 GitHub: [github.com/A7medsaleh88](https://github.com/A7medsaleh88)
 
 ---
